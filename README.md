@@ -1,2 +1,2 @@
-# kanishk1010-github.io
+# kanishk1010.github.io
 About Me
